@@ -1,1 +1,0 @@
-# HYDRA IN PULSAR!!!
